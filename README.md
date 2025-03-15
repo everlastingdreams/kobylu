@@ -1,27 +1,21 @@
-![e6cc94ab96cc7222a73e5db0423f29ef](https://github.com/user-attachments/assets/f7d2505e-c1cd-473c-b418-0c96db97e1f3)
-⛧°。 ⋆༺♱༻⋆。 °⛧༘⋆🏮˚ ༘ ೀ⋆｡˚
-       ” *i love you* "
-       ***HE.. HIM / HIS***
-       **ACE / ROBIN / XILO**
-             | | im taken.. 12-17-14
-
-  dni : lawlu..pro shippers / pedos.. basic dni criteria.
- 
-  int : if ur not a proshipper or a pedo ;-;
+![81d9ec6c898d7bb6f55fd1e0198e1c9f](https://github.com/user-attachments/assets/72f82ca8-a9ba-4677-afb8-6e5596be79e5)
+✰           ***ROBIN / ACE ..***
+TAKEN BY ***TWOOO*** ..🩷🩷 12-17-24
+  
+  / he .. him ;-;
 
 
-portgas D. ace and sabo enthusiastic.
+fandoms.. i think..; 
+*one piece , jjk , strawberry shortcake !!.. , squidgame.. invincible?...sorta..BNA .. , beastars!!....*
 
-my favorite color is blue..or yellow depending on the color..
+i love my partners soo much :3🌸
+umm dont flirt..? immediate block if flirt...ok..
 
+----- 
+૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა
 
-*14. .*
+" ***you dont want weak people on your crew. do you?*** ”
 
-flirt = blocked🥀
-
-
-
-
-
-fandoms : one piece , BNA , squidgame, JJK , strawberry shortcake , beastars. .
-![afa18ec9c4a3cde68b5c4bde06e45726](https://github.com/user-attachments/assets/2372f464-55ae-4a67-9195-5b426cb7d56e)
+basic dni criteria.. : 
+-----
+![161ed52cca7ea07325b5b2bb914bb585](https://github.com/user-attachments/assets/23160975-57f2-4964-a4ce-23090b69f1b0)
